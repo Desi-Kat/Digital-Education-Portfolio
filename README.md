@@ -47,3 +47,9 @@ During a challenging COVID period, I managed the set up and delivery of the End 
 
 <img width="1895" height="802" alt="image004 (1)" src="https://github.com/user-attachments/assets/ddaa8209-d1f9-4a34-a6f4-33a95ee31e7f" />
 
+
+
+**Data Analytics**
+
+<img width="1353" height="942" alt="image" src="https://github.com/user-attachments/assets/c40fcc30-2576-47a6-b33e-56eaff425dc8" />
+
