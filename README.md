@@ -5,6 +5,10 @@
 
 **[Cut it Out Domestic Abuse Course](https://activatelearningonline.instructure.com/courses/23375)**
 
+**[Cut it Out for Fitness Professionals](https://activatelearningonline.instructure.com/courses/26561)**
+
+**[Cut it out for Hospitality Professionals](https://activatelearningonline.instructure.com/courses/26558)**
+
 <img width="679" height="599" alt="image" src="https://github.com/user-attachments/assets/1932473c-18fc-4578-9fa8-c3b81347f8bf" />
 
 I project managed the design and development of this interactive online course for an external client (Thames Valley Police). The project was a huge success and ended up being endorsed by celebrity hairdresser [Nicky Clarke](https://www.youtube.com/watch?v=JS8Ao1O1QOI).
@@ -26,3 +30,20 @@ I led the asset development and presented the solution at the  [Blended Learning
 **Synovial Joints**
 
 <img width="724" height="477" alt="image" src="https://github.com/user-attachments/assets/49104c93-ba7b-46b4-8ccc-0838c0419905" />
+
+**Creative Festival**
+
+During a challenging COVID period, I managed the set up and delivery of the End of Year Shows for our Creative Industries Faculty, where I collated the artwork of students across 7 campuses and delivered a virtual exhibition environment.
+
+
+<img width="1606" height="825" alt="image001 (2)" src="https://github.com/user-attachments/assets/2b9cf081-3044-45cb-80b4-14b82aab2bbd" />
+
+
+<img width="978" height="583" alt="image002" src="https://github.com/user-attachments/assets/d5b9c355-1d96-4e80-bf85-e52890ce0329" />
+
+
+<img width="1493" height="796" alt="image003" src="https://github.com/user-attachments/assets/cbe984a5-1593-446f-bb32-5b6432dcaa08" />
+
+
+<img width="1895" height="802" alt="image004 (1)" src="https://github.com/user-attachments/assets/ddaa8209-d1f9-4a34-a6f4-33a95ee31e7f" />
+
