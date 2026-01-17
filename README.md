@@ -33,7 +33,7 @@ I led the asset development and presented the solution at the  [Blended Learning
 
 **Creative Festival**
 
-During a challenging COVID period, I managed the set up and delivery of the End of Year Shows for our Creative Industries Faculty, where I collated the artwork of students across 7 campuses and delivered a virtual exhibition environment in Thinglink, linked to Canvas pages for each of the subjects.
+During a challenging COVID period, I managed the set up and delivery of the End of Year Shows for our Creative Industries Faculty, where I collated the artwork of students across 7 campuses and managed the delivery of a virtual exhibition environment in Thinglink, linked to Canvas pages for each of the subjects showing the student submissions.
 
 
 <img width="1606" height="825" alt="image001 (2)" src="https://github.com/user-attachments/assets/2b9cf081-3044-45cb-80b4-14b82aab2bbd" />
